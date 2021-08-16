@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @epdrew
+- 👋 Hi, I’m Andrew
 - 👀 I’m interested in communication and publicity and many other things. Ask me about it, i'll gladly entertain you or bore you. 
 - 🌱 I’m currently learning ... Well i'm actually done 'learning' the school stuff, now i want to learn the real stuff. #Neverstoplearning
 - 💞️ I’m looking to collaborate on any project that will change the world a little. 
